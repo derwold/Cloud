@@ -1,1 +1,2 @@
 # Cloud
+All rights reserved; no part of this publication may be reproduced or trasnmitted by any means, electronic, mechanical, photocopying or otherwise, without the prior permission of the publisher.
